@@ -1,0 +1,1 @@
+# privacy_policy_for_soccer_game_app
